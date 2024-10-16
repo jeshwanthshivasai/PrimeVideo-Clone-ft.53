@@ -1,1 +1,1 @@
-# PrimeVideo-Clone-ft.53
+https://codepen.io/jeshwanthshivasai/pen/ZEgKQNM
